@@ -1,6 +1,6 @@
 
 
-<DIV align="center">
+<p align="center">
 [Link](https://en.pronouns.page/@pilotredsunz) [Link](https://guns.lol/pilotredsun)
 
 
