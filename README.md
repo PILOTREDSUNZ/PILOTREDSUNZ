@@ -1,7 +1,7 @@
 
 
 <div align="center">
-[Pronouns Page](https://en.pronouns.page/@pilotredsunz/) [GunzLol](https://guns.lol/pilotredsun/)
+[Link](https://en.pronouns.page/@pilotredsunz) [Link](https://guns.lol/pilotredsun)
 
 
 <p align="center">
