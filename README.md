@@ -1,4 +1,11 @@
-<div align="center">
+<a href="https://guns.lol/pilotredsun" class="target" align="center">
+CSS :
+.target{
+     color: yellow;
+     text-align: center;
+}
+
+
 [Pronouns Page](https://en.pronouns.page/@pilotredsunz) [GunzLol](https://guns.lol/pilotredsun)
 
 
