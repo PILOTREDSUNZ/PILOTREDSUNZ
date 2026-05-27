@@ -1,5 +1,5 @@
 <div align="center">
-[![Alt Text](https://en.pronouns.page/@pilotredsunz)
+[![Alt Text](https://en.pronouns.page/@pilotredsunz)]
 
 
 <p align="center">
