@@ -19,7 +19,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 <div align="center">
 
 <details>
-<summary><strong>$${{\color{#FF5C00}{\textsf{Also I really love\}}}}$$</strong></summary>
+<summary><strong>{{\color{#FF5C00}{\textsf{Also I really love\}}}}</strong></summary>
 
 <br>
 
