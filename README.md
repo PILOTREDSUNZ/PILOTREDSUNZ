@@ -10,6 +10,6 @@
 
 <div align="center">
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=FFBF00&center=true&vCenter=true&width=600&lines=This+whole+athing+Wis+still+a+hugew+WIP;Some+things+will+still+be+added+here." />
+<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=FFBF00&center=true&vCenter=true&width=600&lines=This+whole+thing+is+still+a+hugew+WIP;More+things+will+still+be+added+here." />
 
 </div>
