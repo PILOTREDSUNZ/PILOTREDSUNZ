@@ -23,10 +23,10 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{Superman\}}}}$$
-$${{\color{#FF5C00}{\textsf{Team Fortress 2\}}}}$$
-$${{\color{#FF5C00}{\textsf{Golden Retrievers\}}}}$$
-$${{\color{#FF5C00}{\textsf{The colour yellow\}}}}$$
+$${{\color{#FF5C00}{\textsf{Superman ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Team Fortress 2 ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Golden Retrievers ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{The colour yellow ϟ\}}}}$$
 
 </details>
 
@@ -42,10 +42,11 @@ $${{\color{#FF5C00}{\textsf{The colour yellow\}}}}$$
 $${{\color{#FF5C00}{\textsf{Pedophiles\}}}}$$
 $${{\color{#FF5C00}{\textsf{Zoophiles\}}}}$$
 $${{\color{#FF5C00}{\textsf{Insensitive people}}}}$$
-$${{\color{#FF5C00}{\textsf{Religious Bigotry people (those who harass and attack people for being in specific religion)\}}}}$$
+$${{\color{#FF5C00}{\textsf{Religious Bigotry people (those who harass and attack other people for being in specific religions)\}}}}$$
 $${{\color{#FF5C00}{\textsf{If you harass others just because they are different and haven't done anything towards you\}}}}$$
 $${{\color{#FF5C00}{\textsf{Racists/Xenophobics\}}}}$$
 $${{\color{#FF5C00}{\textsf{Ableists\}}}}$$
+$${{\color{#FF5C00}{\textsf{Homophobes\}}}}$$
 
 </details>
 
