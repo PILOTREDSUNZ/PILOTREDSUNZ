@@ -16,4 +16,4 @@
 
 $${{\color{#FF5C00}{\textsf{Psst, hey. See those Supersnakes being sent on other peoples strawpage? Yeah, thats me :)\}}}}$$
 
-$${{\color{#1e90fF}\Large{\textsf{HHH\}}}}$
+$${{\color{#1e90fF}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$
