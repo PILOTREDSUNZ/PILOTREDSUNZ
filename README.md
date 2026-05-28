@@ -1,4 +1,4 @@
-<img width-"140" src-"https://komarev.com/ghpvc/?ILOVEGOLDENRETRIEVERS-username&lable=DEAR+READERS&colour-e6b400">
+<img width-"140" src-"https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&lable=DEAR+READERS&colour=e6b400">
 
 <div align="center"> 
   [Link](https://en.pronouns.page/@pilotredsunz) [Link](https://guns.lol/pilotredsun)
