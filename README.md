@@ -1,5 +1,5 @@
 <p align="center">
-<img width="140" src="https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&lable=PROFILE+VIEWS&colour=e6b400">
+![](https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&lable=PROFILE+VIEWS&colour=e6b400)
 
 <div align="center">
 [Pronouns Page](https://en.pronouns.page/@pilotredsunz) [Guns](https://guns.lol/pilotredsun)
