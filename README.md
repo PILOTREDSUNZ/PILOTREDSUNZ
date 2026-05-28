@@ -1,3 +1,4 @@
+<p align="center">
 <img width="140" src="https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&lable=HAIIII&colour=e6b400">
 
 <div align="center">
