@@ -19,16 +19,17 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 <div align="center">
 
 <details>
-<summary><strong>Click here to see more</strong></summary>
+<summary><strong>$${{\color{#FF5C00}{\textsf{Also I really love\}}}}$$</strong></summary>
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{Also I love Superman, golden retrievers, TF2, and yellow very much :p\}}}}$$
+$${{\color{#FF5C00}{\textsf{Superman\}}}}$$
+$${{\color{#FF5C00}{\textsf{Team Fortress 2\}}}}$$
+$${{\color{#FF5C00}{\textsf{Golden Retrievers\}}}}$$
+$${{\color{#FF5C00}{\textsf{The colour yellow\}}}}$$
 
 </details>
 
 </div>
-
-$${{\color{#FF5C00}{\textsf{Also I love Superman, golden retrievers, TF2, and yellow very much :p\}}}}$$
 
 $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
