@@ -10,6 +10,6 @@
 
 <div align="center">
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=28&pause=1000&color=00F7FF&center=true&vCenter=true&width=600&lines=Hello+World!;I'm+Your+Name;Full-Stack+Developer;Welcome+to+my+GitHub!" />
+<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=FFBF00&center=true&vCenter=true&width=600&lines=Everything+is+a+WIP;in+this+page.;More+will+be+added." />
 
 </div>
