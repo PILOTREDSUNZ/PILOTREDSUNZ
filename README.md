@@ -47,6 +47,7 @@ $${{\color{#FF5C00}{\textsf{If you harass others just because they are different
 $${{\color{#FF5C00}{\textsf{Racists/Xenophobics ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Ableists ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Homophobes ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{If you ship Billy with any of the Shazam/Marvel Family, especially with Freddy ϟ\}}}}$$
 
 </details>
 
