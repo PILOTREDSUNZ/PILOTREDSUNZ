@@ -42,8 +42,8 @@ $${{\color{#FF5C00}{\textsf{The colour yellow ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Pedophiles ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Zoophiles ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Insensitive people ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Religious Bigotry people (those who harass and attack other people for being in specific religions ) ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{If you harass others just because they are different and haven't done anything towards you ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Religious Bigotry people (those who harass and attack other people for being in specific religions) ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Antis who harass and send disgusting threats ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Racists/Xenophobics ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Ableists ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Homophobes ϟ\}}}}$$
