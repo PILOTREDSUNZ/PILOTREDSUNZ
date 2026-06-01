@@ -21,7 +21,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
   <table>                                  
   <tr>
     <th>
-    $${{\color{#FF5C00}{\textsf{C+H always freely to all even if its not in my name, unless it has DNI. W2I is preferred. I only \}}}}$$
+    $${{\color{#FF5C00}{\textsf{C+H always freely to all even if its not in my name, unless it has DNI. W2I is preferred.\}}}}$$
     </th> 
   </tr>                                           
 </table>
