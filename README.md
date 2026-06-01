@@ -16,8 +16,6 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 </div>
 
-$${{\color{#FF5C00}{\textsf{C+H freely always even if its not on my name, unless my name has DNI! W2I most times <3 \}}}}$$
-
 <div align="center">
 
 <details>
