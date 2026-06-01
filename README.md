@@ -16,17 +16,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 </div>
 
-<div align="center">
-
-  <table>                                  
-  <tr>
-    <th>
-    C+H always freely to all even if its not in my name, unless it has DNI. W2I is preferred
-    </th> 
-  </tr>                                           
-</table>
-
-<br><br>
+$${{\color{#FF5C00}{\textsf{C+H always freely to all even if its not in my name, unless it has DNI. W2I is preferred. You'll mostly find me at the DC area sitting by a tree and a rock in a Billy Batson skin\}}}}$$
 
 <div align="center">
 
