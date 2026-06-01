@@ -18,6 +18,18 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <div align="center">
 
+  <table>                                  
+  <tr>
+    <th>
+    $${{\color{#FF5C00}{\textsf{C+H always freely to all even if its not in my name, unless it has DNI. W2I is preferred. I only \}}}}$$
+    </th> 
+  </tr>                                           
+</table>
+
+</div>
+
+<div align="center">
+
 <details>
 <summary><strong> Also I really love </strong></summary>
 
