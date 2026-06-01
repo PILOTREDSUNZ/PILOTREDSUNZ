@@ -16,10 +16,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 </div>
 
-
-
 $${{\color{#FF5C00}{\textsf{C+H always freely to all even if its not in my name, unless it has DNI. W2I is preferred. You'll mostly find me at the DC area sitting by a tree and a rock in a Billy Batson skin. Most of my skins are usually WIPs so they usually look simple and plain most times\}}}}$$
-
 
 
 <div align="center">
