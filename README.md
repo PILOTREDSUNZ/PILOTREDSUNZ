@@ -30,7 +30,8 @@ $${{\color{#FF5C00}{\textsf{C+H is always free for everyone unless stated otherw
 $${{\color{#FF5C00}{\textsf{Expect me to actually come up to you and sit right next to you if you have C+H freely/enc/pls on your name whenever im sitting alone ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{I usually don't interact much or interact first at all with other people in my fandom. I mostly interact and talk more with the people in the TF2\}}}}$$
 $${{\color{#FF5C00}{\textsf{fandom/area ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Ships are usually a IWEC since im not really the type to ship but im fine with it. When im sitting with someone that doesnt mean I automatically ship both of our skins ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Ships are usually a IWEC since im not really the type to ship but im fine with it. When im sitting with someone that doesnt mean I automatically ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ship both of our skins ϟ\}}}}$$
 
 </details>
 
