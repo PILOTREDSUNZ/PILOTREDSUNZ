@@ -71,8 +71,8 @@ $${{\color{#FF5C00}{\textsf{Homophobes ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Radqueers ϟ\}}}}$$
 ${{\color{#FF5C00}{\textsf{If im in ur DNI ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{If you ship Billy with any of the Shazam/Marvel Family members, especially with Freddy ϟ\}}}}$$
-${{\color{#FF5C00}{\textsf{I usually check other peoples Github when they interact first. If im in their DNI (usually those with 14-16 under DNIs) I'll simply reply and keep ϟ\}}}}$$
-${{\color{#FF5C00}{\textsf{the conversation short to respect ur DNI  ϟ\}}}}$$
+${{\color{#FF5C00}{\textsf{I usually check other peoples Github when they interact first. If im in their DNI (usually those with 14-16 under DNIs) I'll simply reply and keep\}}}}$$
+${{\color{#FF5C00}{\textsf{the conversation short to respect ur DNI ϟ\}}}}$$
 
 </details>
 
