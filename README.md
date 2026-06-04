@@ -48,6 +48,7 @@ $${{\color{#FF5C00}{\textsf{I can often go around trolling and goofing around wi
 
 $${{\color{#FF5C00}{\textsf{Superman ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Team Fortress 2 ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{BLU Team and BLU mercenary ponies ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Golden Retrievers ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{The colour yellow ϟ\}}}}$$
 
