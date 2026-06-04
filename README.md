@@ -32,7 +32,7 @@ $${{\color{#FF5C00}{\textsf{I usually don't interact much or interact first at a
 $${{\color{#FF5C00}{\textsf{fandom/area ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Ships are usually a IWEC since im not really the type to ship but im fine with it. When im sitting with someone that doesnt mean I\}}}}$$
 $${{\color{#FF5C00}{\textsf{automatically ship both of our skins ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Often trolling and goofing around with friends when im not lonely ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{I can often go around trolling and goofing around with friends when im not lonely though its rare ϟ\}}}}$$
 
 </details>
 
