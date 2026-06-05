@@ -25,7 +25,7 @@ $${{\color{#FF007F}{\textsf{also yo check out my drawings in my other respirator
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{Im pupgender, yes im a "weird" kid enjoying life. Yes I use pup/pupself or paw/pawself deal with it lol ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Im pupgender goldrevian, yes im a "weird" kid enjoying life. Yes I use pup/pupself or paw/pawself deal with it lol ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{You'll mostly find me at the DC and TF2 area ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{I'm mostly using a Billy Batson skin ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Most of my skins are very simple since I mostly prefer using plain and simple skins ϟ\}}}}$$
