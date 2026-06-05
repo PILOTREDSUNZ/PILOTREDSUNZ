@@ -16,7 +16,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 </div>
 
-$${{\color{#FFBDA1}{\textsf{also yo check out my drawings in my other respiratory aha plehhhh (˶˃ ᵕ ˂˶) .ᐟ.ᐟϟ\}}}}$$
+$${{\color{#FF007F}{\textsf{also yo check out my drawings in my other respiratory aha plehhhh (˶˃ ᵕ ˂˶) .ᐟ.ᐟϟ\}}}}$$
 
 <div align="center">
 
