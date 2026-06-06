@@ -56,7 +56,7 @@ $${{\color{#FF5C00}{\textsf{ϟ Team Fortress 2 i love it so mucch it helped me t
 
 $${{\color{#FF5C00}{\textsf{ϟ BLU Team and the BLU mercenaries. Blu team is simply better ϟ\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{ϟ Golden Retrievers im literally one of them hashtagpupgender hashtaggoldrevian yes hai im a doggie ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ Golden Retrievers cuz they r so cute and cuzim literally one of them hashtagpupgender hashtaggoldrevian yes hai im a doggie ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ The colour yellow, orange and red. these colours are so me heh ϟ\}}}}$$
 
