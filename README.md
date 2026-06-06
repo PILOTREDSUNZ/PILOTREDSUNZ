@@ -21,22 +21,14 @@ $${{\color{#FF007F}{\textsf{also yo check out my drawings in my other respirator
 <div align="center">
 
 <details>
-<summary><strong> A bit of info </strong></summary>
+<summary><strong> Before you interact </strong></summary>
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{Im pupgender goldrevian, yes im a "weird" kid enjoying life. Yes I use pup/pupself or paw/pawself deal with it lol ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{You'll mostly find me at the DC and TF2 area ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{I'm mostly using a Billy Batson skin ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Most of my skins are very simple since I mostly prefer using plain and simple skins ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{C+H is always free for everyone unless stated otherwise! I mostly prefer talking in whispers too ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Expect me to actually come up to you and sit right next to you if you have C+H freely/enc/pls on your name whenever im sitting alone ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{I usually don't interact much or interact first at all with other people in my fandom. Im mostly interactive and social towards the people in the TF2\}}}}$$
-$${{\color{#FF5C00}{\textsf{fandom/area ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{TF2/Valve fans pls int and C+H please dont be scared of me cuz of my skins im nice I promise I love y'all TF2 peeps PLEASE ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Ships are usually a IWEC since im not really the type to ship but im fine with it. When im sitting with someone that doesnt mean I\}}}}$$
-$${{\color{#FF5C00}{\textsf{automatically ship both of our skins ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{I can often go around trolling and goofing around with friends when im not lonely though its rare ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ Please read all of the stuffs I linked in here since I might be in ur DNI (usually those with under 15-16 and up DNIs) ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ I really love and enjoy talking about stuffs like about my day, plans, interests and more. I can be extremely social though I mostly socialize more \}}}}$$
+$${{\color{#FF5C00}{\textsf{with the people in the TF2 area ϟ\}}}}$$
 
 </details>
 
@@ -62,26 +54,16 @@ $${{\color{#FF5C00}{\textsf{The colour yellow, orange and red ϟ\}}}}$$
 <div align="center">
 
 <details>
-<summary><strong>Please DNI</strong></summary>
+<summary><strong> DNI </strong></summary>
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{Pedophiles ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Zoophiles ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Insensitive people ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Religious Bigotry people (those who harass and attack other people for being in specific religions) ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Antis who harass and send disgusting threats ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Racists/Xenophobics ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Ableists ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Homophobes ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Radqueers ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{If im in ur DNI ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{If you joke about the wars happening rn and the Epstein files ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{If you ship Billy with any of the Shazam/Marvel Family members, especially with Freddy ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{I usually check other peoples Github to check their DNIs when they interact first. If im in their DNI (usually those with 15-16 under DNIs) I'll \}}}}$$
-$${{\color{#FF5C00}{\textsf{simply reply but keep the conversation short to respect the DNI ϟ\}}}}$$
-
-</details>
+$${{\color{#FF5C00}{\textsf{Basic DNI criteriaϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{If you ship Billy with Freddy or any of the Marvel/Shazam family ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{If you hate one of my comfort fandoms/characters and kins ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{If you make sick jokes of such serious topics like the epstein files, 9/11, war and more ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Any kind of biggotry ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Anti xenogenders ϟ\}}}}$$
 
 </div>
 
