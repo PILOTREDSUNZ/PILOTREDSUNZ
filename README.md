@@ -37,6 +37,8 @@ $${{\color{#FF5C00}{\textsf{one of them I might take it very personally ϟ\}}}}$
 
 $${{\color{#FF5C00}{\textsf{ϟ C+H is always encouraged even if its not in my name, unless I have DNIUF in my name ϟ\}}}}$$
 
+$${{\color{#FF5C00}{\textsf{ϟ Expect me to actually cuddle with u if you have C+H in ur name whenever im alone ϟ\}}}}$$
+
 </details>
 
 </div>
