@@ -16,7 +16,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 </div>
 
-$${{\color{#FF007F}{\textsf{also yo check out my drawings in my other respiratory and sign my ata aha plehhh. though most of my drawings are like sketches oh well\}}}}$$
+$${{\color{#FF007F}{\textsf{also yo check out my drawings in my other [respiratory](https://github.com/ILOVEGOLDENRETRIEVERS/Some-goofy-doodle-art-dump-) and sign my ata aha plehhh. though most of my drawings are like sketches oh well\}}}}$$
 
 <div align="center">
 
