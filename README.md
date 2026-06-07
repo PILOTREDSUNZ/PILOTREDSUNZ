@@ -21,11 +21,16 @@ $${{\color{#FF007F}{\textsf{also yo check out my drawings in my other respirator
 <div align="center">
 
 <details>
-<summary><strong> Before you interact </strong></summary>
+<summary><strong> Info ig </strong></summary>
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{ϟ Please read all of the stuffs I linked in here since I might be in ur DNI (usually those with under 15-16 and up DNIs) ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ I dont accept friend requests easily sorry. You might need to talk to me a lot a dozen times for me to actually accept ur friend request ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ I might unfriend you if we havent talked for more than two months straight or if we just dont get along with eachother well. Its nothing personal\}}}}$$
+$${{\color{#FF5C00}{\textsf{ since we're not exactly close sorry ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ You'll mostly see me at the DC and TF2 area, feel free to approach me ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ I really love and enjoy talking about stuffs like about my day, plans, interests and more. I can be extremely social and a bit too much though I \}}}}$$
 $${{\color{#FF5C00}{\textsf{mostly socialize more with the people in the TF2 area/fandom and usually dont interact much with other people in my other fandoms. ϟ\}}}}$$
@@ -59,6 +64,8 @@ $${{\color{#FF5C00}{\textsf{ϟ Team Fortress 2 i love it so mucch it helps me be
 $${{\color{#FF5C00}{\textsf{ϟ Interacting and socializing with TF2 fans and ponies in the TF2 area ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ Making new friends and cuddling in pony town!!! ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ Matching skins with my friends!!! If ur in my friends list and I feel comfortable enough with you expect me to ask you if we can match skins ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ My friends!! I love all my cute and adorable friends awwhh ily all sm /plat<3 ϟ\}}}}$$
 
