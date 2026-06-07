@@ -38,7 +38,8 @@ $${{\color{#FF5C00}{\textsf{mostly socialize more with the people in the TF2 are
 $${{\color{#FF5C00}{\textsf{ϟ I might say some stuffs that makes u uncomfortable. Please let me know if I do and I'll apologize immediately ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ I may come off as annoying, weird, persistent and rude. It is not my inention to make others view me badly. Im sorry in advance for how I socialise\}}}}$$
-$${{\color{#FF5C00}{\textsf{since I get too caught up and excited to realise how I am behaving and talking ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{since I get too caught up and excited to realise how I am behaving and talking\}}}}$$
+$${{\color{#FF5C00}{\textsf{and I never want to be intentionally rude towards anyone, I just dont realise I am acting rude cuz most of the time my words are taken as a joke ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ Keep in mind I use my comfort characters and fandoms as a way to cope since they help me feel better so if u dont like \}}}}$$
 $${{\color{#FF5C00}{\textsf{one of them I might take it very personally ϟ\}}}}$$
