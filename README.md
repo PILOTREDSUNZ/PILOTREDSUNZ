@@ -12,7 +12,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <div align="center">
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=FFBF00&center=true&vCenter=true&width=600&lines=This+entire+Github+will+be+changed+later+into+a+different+theme;I'll+add+my+strawpage+soon+too+plehh" />
+<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=FFBF00&center=true&vCenter=true&width=1000&lines=This+entire+Github+will+be+changed+later+into+a+different+theme;I'll+add+my+strawpage+soon+too+plehh" />
 
 </div>
 
