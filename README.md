@@ -100,7 +100,7 @@ $${{\color{#FF5C00}{\textsf{ϟ Basic DNI criterias ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ If you ship Billy with Freddy or any of the Marvel/Shazam family ϟ\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{ϟ If you hate one of my comfort fandoms/characters and kins ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ If you hate any of my comfort fandoms/characters and kins ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ If you make sick jokes of such serious topics like the epstein files, 9/11, war and more ϟ\}}}}$$
 
