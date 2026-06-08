@@ -55,7 +55,7 @@ $${{\color{#FF5C00}{\textsf{🗲 Expect me to actually cuddle with u if you have
 $${{\color{#FF5C00}{\textsf{🗲 Dont mind my skins. I prefer keeping them plain and simple but yes, I do have more detailed skins I just dont use a lot 🗲\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 Dont know much of other chars in DC, Marvel and Imagine Comics since I mostly only read the comics of my fav/comf characts like 🗲 \}}}}$$
-$${{\color{#FF5C00}{\textsf{Superman, Shazam, Stargirl, Doc Ock, etc 🗲 \}}}}$$
+$${{\color{#FF5C00}{\textsf{Superman, Captain Marvel (Billy), Captain Marvel (Carol), Captain Mar-vell, etc 🗲 \}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 okay so uhmm i didnt know the old signs i used to write these were VERY bad im so sorry i didnt know i shouldve done research\}}}}$$
 $${{\color{#FF5C00}{\textsf{since i wasnt expecting it to actually mean anything and though it was just a simple cool thunder sign :( 🗲\}}}}$$
