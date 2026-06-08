@@ -24,6 +24,7 @@ $${{\color{#FF007F}{\textsf{also yo check out my drawings in my other respirator
 <summary><strong> Info ig </strong></summary>
 
 <br>
+$${{\color{#FF5C00}{\textsf{🗲 Heavily obsessed with BLU Team and BLU Spy and Heavy. Im literally that one BLU Spy in the TF2 area aha trust me im soo him 🗲 \}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 I dont accept friend requests easily sorry. You might need to talk to me a lot a dozen times for me to actually accept ur friend request 🗲 \}}}}$$
 
