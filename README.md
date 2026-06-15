@@ -26,4 +26,4 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <img align="right" img width="500" height="500" alt="sillies" src="https://github.com/user-attachments/assets/031551b1-769c-4bcb-aad8-582e9ed8b798" />
 </br>
-<p> haii </p>
+<p>${{\color{#ee9f27}{\textsf{⚡︎\}}}}$</p>
