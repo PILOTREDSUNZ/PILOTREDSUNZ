@@ -29,34 +29,21 @@ align="right"
 width="500"
 src="https://github.com/user-attachments/assets/f7d4c6f5-9bb6-4a33-9066-3e7912eb427d" />
 
-<table>
-<tr>
+<details>
 
-<td>
-<img src="https://media.giphy.com/media/3o7TKMt1VVNkHV2PaE/giphy.gif"
-width="180">
-</td>
+<summary>
 
-<td>
-
-<h3>
-<img src="https://github.com/user-attachments/assets/75d12952-6a36-431d-89d6-facc13d053a6" />
+<img src=<img width="20" height="20" alt="0ac0ebfc" src="https://github.com/user-attachments/assets/6310fea6-8968-48f9-ac80-f0b84f8dd5fb" />
 >
-<span style="color:#87ceeb;">ABOUT ME</span>
-</h3>
 
-I like making projects.
+<font color="pink">
+✦ CLICK TO OPEN ✦
+</font>
 
-<img src="small-gif.gif" width="15">
-<span style="color:#87ceeb;">Commands</span>
+</summary>
 
-<pre>
-git clone example
-npm install
-npm start
-</pre>
+<br>
 
-</td>
+Hikdadjpoadoe PLEAASEEWORRK
 
-</tr>
-</table>
+</details>
