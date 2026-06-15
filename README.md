@@ -24,11 +24,11 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 </div>
 
-<p align="left">
+<p align="right">
 
 <img
-align="left"
-width="180"
+align="right"
+width="500"
 src="https://github.com/user-attachments/assets/f7d4c6f5-9bb6-4a33-9066-3e7912eb427d" />
 
 <span style="color:#b89c43;">
