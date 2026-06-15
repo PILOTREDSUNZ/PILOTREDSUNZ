@@ -24,6 +24,19 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 </div>
 
-<img align="right" img width="500" alt="sillies" src="https://github.com/user-attachments/assets/031551b1-769c-4bcb-aad8-582e9ed8b798" />
-</br>
-$${{\color{#ee9f27}{\textsf{𝙸𝚝 𝚜𝚎𝚎𝚖𝚜 𝙸 𝚊𝚖 𝚗𝚘𝚝 𝚝𝚑𝚎 𝚘𝚗𝚕𝚢 𝚂𝚙𝚢.\}}}}$$
+<p align="left">
+
+<img
+align="left"
+width="180"
+src="https://github.com/user-attachments/assets/f7d4c6f5-9bb6-4a33-9066-3e7912eb427d" />
+
+<span style="color:#b89c43;">
+Hello this text sits beside the image.
+</span>
+
+<br><br>
+
+<code></code>
+
+</p>
