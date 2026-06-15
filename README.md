@@ -20,7 +20,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <div align="center">
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Pacifico+Code&size=28&pause=1000&color=d1aa36&center=true&vCenter=true&width=1000&lines=Let+us+dance,+gentlemen!;Dance+as+if+no+ones+shooting+at+us!" />
+<img src="https://readme-typing-svg.herokuapp.com?font=Pacifico+Script&size=28&pause=1000&color=d1aa36&center=true&vCenter=true&width=1000&lines=Let+us+dance,+gentlemen!;Dance+as+if+no+ones+shooting+at+us!" />
 
 </div>
 
