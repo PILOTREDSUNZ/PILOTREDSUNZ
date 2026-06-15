@@ -24,47 +24,8 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 </div>
 
-<p align="right">
-
 <img
 align="right"
 width="500"
 src="https://github.com/user-attachments/assets/f7d4c6f5-9bb6-4a33-9066-3e7912eb427d" />
 
-<table>
-<tr>
-
-<td>
-<img src="https://media.giphy.com/media/3o7TKMt1VVNkHV2PaE/giphy.gif"
-width="180">
-</td>
-
-<td>
-
-<h3>
-<span style="color:#ff69b4;">ABOUT ME</span>
-</h3>
-
-I like making projects.
-
-<img src="https://github.com/user-attachments/assets/e67c4f48-365c-4b8e-9dc6-a98ab3230cee" />
->
-<span style="color:#87ceeb;">Commands</span>
-
-<pre>
-<table>                                  
-  <tr>
-    <th>
-     hi
-      hi
-      hi
-      hi
-    </th> 
-  </tr>                                           
-</table>
-</pre>
-
-</td>
-
-</tr>
-</table>
