@@ -29,3 +29,34 @@ align="right"
 width="500"
 src="https://github.com/user-attachments/assets/f7d4c6f5-9bb6-4a33-9066-3e7912eb427d" />
 
+<table>
+<tr>
+
+<td>
+<img src="https://media.giphy.com/media/3o7TKMt1VVNkHV2PaE/giphy.gif"
+width="180">
+</td>
+
+<td>
+
+<h3>
+<img src="https://github.com/user-attachments/assets/75d12952-6a36-431d-89d6-facc13d053a6" />
+>
+<span style="color:#87ceeb;">ABOUT ME</span>
+</h3>
+
+I like making projects.
+
+<img src="small-gif.gif" width="15">
+<span style="color:#87ceeb;">Commands</span>
+
+<pre>
+git clone example
+npm install
+npm start
+</pre>
+
+</td>
+
+</tr>
+</table>
