@@ -8,11 +8,11 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <br><br>
 
-<img width="735" height="386" alt="Is Mister Mentor, the wizard Shazam_" src="https://github.com/user-attachments/assets/d802c0ea-247b-4b63-b90c-2a64be2349ba" />
+<img width="736" height="230" alt="I&#39;M A SPY TF -Will" src="https://github.com/user-attachments/assets/7ee21ead-03ab-411b-afd3-7a553190a144" />
 
 <div align="center">
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=FFBF00&center=true&vCenter=true&width=1000&lines=This+entire+Github+still+isnt+finished+;I'll+add+my+strawpage+soon+too+plehh" />
+<img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=d1aa36&center=true&vCenter=true&width=1000&lines=Let+us+dance,+gentlemen!;Dance+as+if+no+ones+shooting+at+us!" />
 
 </div>
 
