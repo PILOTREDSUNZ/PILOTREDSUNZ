@@ -11,9 +11,9 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 
 <p align="center">
-<img width="65" height="45" alt="TF2gender" src="https://github.com/user-attachments/assets/2f22f72d-4722-4788-b663-1f575e33dd92" />
-<img width="65" height="45" alt="☆ ; bluix" src="https://github.com/user-attachments/assets/8190dee7-436c-460c-a6dc-0c569fbf1c35" />
-<img width="65" height="45" alt="Valvegender" src="https://github.com/user-attachments/assets/3a193816-a263-440f-9ebd-442599202aa6" />
+<img width="60" height="35" alt="Bigender_Flag svg (1)" src="https://github.com/user-attachments/assets/f11ed20b-d68f-4eaf-8716-c1ed9a56e810" />
+<img width="60" height="35" alt="Pansexuality_Pride_Flag svg" src="https://github.com/user-attachments/assets/8161a336-2b86-4282-a598-3a6e07137b07" />
+<img width="60" height="35" alt="Pupgender" src="https://github.com/user-attachments/assets/738324f6-39a7-4705-9999-3ba432a12389" />
 
 <p align="center">
 <img width="736" height="230" alt="I&#39;M A SPY TF -Will" src="https://github.com/user-attachments/assets/7ee21ead-03ab-411b-afd3-7a553190a144" />
