@@ -26,4 +26,4 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <img align="right" img width="500" alt="sillies" src="https://github.com/user-attachments/assets/031551b1-769c-4bcb-aad8-582e9ed8b798" />
 </br>
-$${{\color{#ee9f27}{\textsf{⚡︎\}}}}$$
+$${{\color{#ee9f27}{\textsf{𝙸𝚝 𝚜𝚎𝚎𝚖𝚜 𝙸 𝚊𝚖 𝚗𝚘𝚝 𝚝𝚑𝚎 𝚘𝚗𝚕𝚢 𝚂𝚙𝚢.\}}}}$$
