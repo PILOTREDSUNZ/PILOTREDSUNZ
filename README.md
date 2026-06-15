@@ -1,7 +1,7 @@
 $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <p align="center">
-  <img width="150" src="https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&label=BUILDERS.LEAGUE.UNITED&color=e6b400">
+  <img width="180" src="https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&label=BUILDERS.LEAGUE.UNITED&color=e6b400">
 <div align="center">
   
 [PronounsPage](https://en.pronouns.page/@pilotredsunz) 🗲 [Ata](https://bluspy.atabook.org/)
