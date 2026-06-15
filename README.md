@@ -30,11 +30,3 @@ width="500"
 src="https://github.com/user-attachments/assets/f7d4c6f5-9bb6-4a33-9066-3e7912eb427d" />
 
 ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐿𝐼𝒦𝐸 𝐼 𝒜𝑀 𝒩𝒪𝒯 𝒯𝐻𝐸 𝒪𝒩𝐿𝒴 𝒮𝒫𝒴."\}}}}$
-
-<table>                                  
-  <tr>
-    <th>
-    $${\color{#f7f1d1}"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐿𝐼𝒦𝐸 𝐼 𝒜𝑀 𝒩𝒪𝒯 𝒯𝐻𝐸 𝒪𝒩𝐿𝒴 𝒮𝒫𝒴."\}$$
-    </th> 
-  </tr>                                           
-</table>
