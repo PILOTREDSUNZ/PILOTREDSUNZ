@@ -26,7 +26,7 @@ $${{\color{#FFB200}\Large{\textsf{TS GEN A HUGE WIP DUDE. IM GONNA CHANGE AND PU
 
 <img
 align="right"
-width="500"
+width="460"
 src="https://github.com/user-attachments/assets/f7d4c6f5-9bb6-4a33-9066-3e7912eb427d" />
 
 ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪𝒯 𝒯𝐻𝐸 𝒪𝒩𝐿𝒴 𝒮𝒫𝒴."\}}}}$
