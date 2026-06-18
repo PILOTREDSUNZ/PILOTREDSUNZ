@@ -56,17 +56,18 @@ ${{\color{#f7f1d1}{\textsf{ྀིྀི Drawing besides these texts were drawn b
 
 <br><br>
 
+<div align="center">
+  
 <details>
   <summary>
 <img width="20" height="20" alt="byi" src="https://github.com/user-attachments/assets/d3333433-2125-4b80-8681-5ee503d4ed6a" />
-   <span style="color:#7cca92;">
-    Click me !!
+    BYI!!!!!
     </span>
   </summary>
 
   <br>
 
-  Hidden text appears here.
+  ${{\color{#f7f1d1}{\textsf{hmrfs \}}}}$
 
 </details>
 
