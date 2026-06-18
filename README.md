@@ -40,5 +40,6 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
   </tr>
 </table>
 
+<p align="left">
 ${{\color{#f7f1d1}{\textsf{ྀིྀི Im def BLU Spy irl trust me guys. BLU Team rules, it is simply the humble upgrade of RED Team ৎ\}}}}$
 
