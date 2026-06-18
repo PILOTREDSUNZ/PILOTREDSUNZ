@@ -48,6 +48,6 @@ ${{\color{#f7f1d1}{\textsf{and annoys everyone around them ྀིྀི\}}}}$
 
 ${{\color{#f7f1d1}{\textsf{ྀིྀི N1 BLU Team glazer and Heavy lvr <3 (not a yume) ྀིྀི \}}}}$
 
-${{\color{#f7f1d1}{\textsf{ྀིྀི check out my alt github linked in my gunslol ྀིྀི \}}}}$
+${{\color{#f7f1d1}{\textsf{ྀིྀི the drawing besides this texts were drawn by me ^^ ྀིྀི \}}}}$
 
 <br><br>
