@@ -42,7 +42,7 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
 
 <div align="left">
   
-${{\color{#f7f1d1}{\textsf{ྀིྀི That one BLU Spy in the Valve area who is too overconfident\}}}}$
+${{\color{#f7f1d1}{\textsf{ྀིྀི That BLU Spy in the Valve area who is too overconfident\}}}}$
 
 ${{\color{#f7f1d1}{\textsf{and annoys everyone around them ྀིྀི\}}}}$
 
