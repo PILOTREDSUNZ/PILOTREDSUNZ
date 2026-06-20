@@ -61,6 +61,8 @@ ${{\color{#d1aa36}{\textsf{might say some rude things towards you. I\}}}}$
 
 ${{\color{#d1aa36}{\textsf{apologise in advance for this ⟡⋆\}}}}$
 
+${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
+
 <br><br>
 
 <div align="center">
