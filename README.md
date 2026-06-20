@@ -88,7 +88,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
   ${{\color{#4682b4}{\textsf{✧ I really do love and enjoy talking and yapping a lot ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ My grammar and spelling sucks a lot especially when I get excited talking and I cant really realise my mistakes easily\}}}}$
-  ${{\color{#4682b4}{\textsfso I never really bothered to correct them most of the time. Sorry if you also dont understand me because of this ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{so I never really bothered to correct them most of the time. Sorry if you also dont understand me because of this ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Expect me to actually sit with u if u have C+H in ur name whenever im sitting alone ✧\}}}}$
 
