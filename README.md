@@ -35,7 +35,7 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
   <tr>
     <th>
       <img src="https://github.com/user-attachments/assets/b8b24f76-04a3-4375-865b-138f9d14d2b3" />
-       Coolest BLU enthusiast ever guyss like lit soo cool
+       Lit BLU Spy IRL
     </th>
   </tr>
 </table>
