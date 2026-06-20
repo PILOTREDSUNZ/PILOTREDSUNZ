@@ -4,7 +4,7 @@ $${{\color{#FFB200}\Large{\textsf{TS GEN A HUGE WIP DUDE. IM GONNA CHANGE AND PU
   <img width="190" src="https://komarev.com/ghpvc/?username=PILOTREDSUNZ&label=BUILDERS.LEAGUE.UNITED&color=4682b4">
 <div align="center">
   
-[𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜𝚙𝚊𝚐𝚎](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{ᯓ\}}}}$$ [𝚊𝚝𝚊](https://bluspy.atabook.org/) [gunss](https://guns.lol/bluspy)
+[𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌.𝖼𝖼](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://bluspy.atabook.org/) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝗀𝗎𝗇𝗌𝗅𝗈𝗅](https://guns.lol/bluspy) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://bluspy.straw.page)
 
 <br><br>
 
