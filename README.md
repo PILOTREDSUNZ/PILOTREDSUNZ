@@ -95,7 +95,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
   ${{\color{#4682b4}{\textsf{✧ My friend requests are turned off. You might need to talk to me for days for me to finally add you. I will unfriend you\}}}}$
   ${{\color{#4682b4}{\textsf{though if we are not that close and havent talk to eachother in months ✧\}}}}$
 
-  ${{color{#4682b4}{\textsf{✧ Im extremely affectionate towards my friends and often call them by nicknames and say ILY and worry too much, so be aware\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ Im extremely affectionate towards my friends and often call them by nicknames and say ILY and worry too much, so be aware\}}}}$
   ${{\color{#4682b4}{\textsf{of this if u intend to be my friend ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ IM ACTUALLY VERYYY KIND AND NICE PLEASEPLS INT W ME IM NOT THAT NATURALLY MEAN AND RUDE PLSS ✧\}}}}$
