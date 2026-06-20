@@ -45,7 +45,12 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
   
 ${{\color{#d1aa36}{\textsf{⊹₊ Literally BLU Spy IRL ⟡⋆\}}}}$
 
-${{\color{#d1aa36}{\textsf{⊹₊ Your experience with me will sometimes be the greatest ⟡⋆\}}}}$
+${{\color{#d1aa36}{\textsf{⊹₊ Your experience with me will sometimes\}}}}$
+
+${{\color{#d1aa36}{\textsf{not be the greatest ⟡⋆\}}}}$
+
+${{\color{#d1aa36}{\textsf{⊹₊ I can get extremenly annoying by how cocky, overconfident\}}}}$
+
 
 <br><br>
 
