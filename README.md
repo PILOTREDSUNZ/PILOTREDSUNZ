@@ -96,7 +96,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
   ${{\color{#4682b4}{\textsf{though if we are not that close and havent talk to eachother in months ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Im extremely affectionate towards my friends and often call them by nicknames and say ILY and worry too much, so be aware\}}}}$
-  ${{\color{#4682b4}{\textsf{of this if u intend to be my friend ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{of this if u intend to be my friend. AND PLEASE NEVER MISTAKEN THIS AS SOMETHING ROMANTICAL. THIS IS PURELY PLATONICAL ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ IM ACTUALLY VERYYY KIND AND NICE PLEASEPLS INT W ME IM NOT THAT NATURALLY MEAN AND RUDE PLSS ✧\}}}}$
 
@@ -167,16 +167,54 @@ ${{\color{#4682b4}{\textsf{especially if we arent friends ✧\}}}}$
   <summary>
 <img width="20" height="20" alt="ILOVEE" src="https://github.com/user-attachments/assets/c0e966a6-4e99-41ae-96f7-cf7f5e6cc763" />
     I realllyy loveee
+<img width="20" height="20" alt="ILOVEE" src="https://github.com/user-attachments/assets/32704ec9-fa32-4990-b76d-869a0de829c5" />
     </span>
   </summary>
 
   <br>
 
-  ${{\color{#4682b4}{\textsf{✧ ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ Golden retrievers and puppies!!! they r soo cute they make me happy <33 ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ Heavy. Hes soo adorbs awhhh. IDC if hes a BLU or RED Heavy, Heavy is still Heavy <3 ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ TF2... Duh. And also other Valve games!! ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ Rainbows, sunset, and clouds. They r gen soo pretty I love them sm ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ My adorable and cute friends!! I love youu all smmm tysm for sticking with me despite evrything <3 ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ Cuddling and sitting close with others and yapping!!! Yes I love it whenever ur pony cuddles with mine cuz\}}}}$
+  ${{\color{#4682b4}{\textsf{I gen find it soo cute and adorbss <3 ✧\}}}}$
+
+</details>
+
+</details>
+
+<div align="center">
   
-</details>
+<details>
+  <summary>
+<img width="15" height="15" alt="statuss" src="https://github.com/user-attachments/assets/c2aa9e03-7bd8-4b4b-8da1-b00d1073c374" />
+    Status Meaning
+<img width="15" height="15" alt="statuss" src="https://github.com/user-attachments/assets/03b49639-5b4d-4a17-8f11-8d66d0de969e" />
+    </span>
+  </summary>
+
+  <br>
+
+${{\color{#4682b4}{\textsf{✧ Online- actively ontab and will reply immediately. Usually talking to friends or someone else ✧\}}}}$
+
+${{\color{#4682b4}{\textsf{✧ Busy- offtab, working and doing other stuffs, slow resp. W2I suggested and appreciated ✧\}}}}$
+
+${{\color{#4682b4}{\textsf{✧ Away- AFK and no response. Can disconnect sometimes. W2I heavily appreciated ✧\}}}}$
+
+${{\color{#4682b4}{\textsf{✧ Looking for chat- bored and usually waiting for friends and looking for someone to talk and sit with. Free to int w this!! ✧\}}}}$
+
+${{\color{#4682b4}{\textsf{✧ Looking for roleplay- feeling silly and is willing to roleplay with anyone!!! (rarely used) ✧\}}}}$
 
 </details>
 
+</details>
 
 
+$${{\color{#4682b4}\Large{\textsf{⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹\}}}}$$
