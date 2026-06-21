@@ -77,7 +77,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
   <br>
 
-  ${{\color{#4682b4}{\textsf{✧ Big BLU team enhusiast here. I gen would get excited if I see more BLU mercenary skins ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ Big BLU team enthusiast here. I gen would get excited if I see more BLU mercenary skins ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ I tend to hide people temporarily if they managed to bother and annoy me ✧\}}}}$
 
