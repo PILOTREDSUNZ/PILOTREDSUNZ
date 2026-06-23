@@ -43,7 +43,7 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
 
 <div align="left">
   
-${{\color{#d1aa36}{\textsf{⊹₊ BLU Spy fictionkin ⟡⋆\}}}}$
+${{\color{#d1aa36}{\textsf{⊹₊ THE BLU Spy for Pony Town ⟡⋆\}}}}$
 
 ${{\color{#d1aa36}{\textsf{⊹₊ Your experience with me will sometimes\}}}}$
 
