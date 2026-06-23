@@ -153,6 +153,8 @@ ${{\color{#4682b4}{\textsf{✧ Anti Xenogender and Neopronouns ✧\}}}}$
 
 ${{\color{#4682b4}{\textsf{✧ Shelly and her associates ✧\}}}}$
 
+${{\color{#4682b4}{\textsf{✧ Anti-fictionkins ✧\}}}}$
+
 ${{\color{#4682b4}{\textsf{✧ If you sit besides me and roleplay with me for the sake of your ship "WITHOUT" asking first. I WILL either hide u\}}}}$
 ${{\color{#4682b4}{\textsf{temporarily or move away. Im already awkward with discussing the topic of ships, so this gen makes me uncomfy,\}}}}$
 ${{\color{#4682b4}{\textsf{especially if we arent friends ✧\}}}}$
