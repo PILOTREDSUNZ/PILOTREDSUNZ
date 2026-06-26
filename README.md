@@ -12,7 +12,7 @@ $${{\color{#4682b4}\Large{\textsf{⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊
 
 
 <p align="center">
-<img width="60" height="35" alt="Bigender_Flag svg (1)" src="https://github.com/user-attachments/assets/f11ed20b-d68f-4eaf-8716-c1ed9a56e810" />
+<img width="60" height="35" alt="which-bigender-flag-do-you-prefer-not-including-the-og-flag-v0-4xzxenmvv69b1" src="https://github.com/user-attachments/assets/6b7511d3-b0ed-4c4b-a093-778191de4266" />
 <img width="60" height="35" alt="Pansexuality_Pride_Flag svg" src="https://github.com/user-attachments/assets/8161a336-2b86-4282-a598-3a6e07137b07" />
 <img width="60" height="35" alt="Pupgender" src="https://github.com/user-attachments/assets/738324f6-39a7-4705-9999-3ba432a12389" />
 
