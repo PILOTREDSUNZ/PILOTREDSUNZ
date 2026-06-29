@@ -125,6 +125,8 @@ ${{\color{#4682b4}{\textsf{hurt yall. But I heavily appreciate it if someone exp
 
 ${{\color{#4682b4}{\textsf{✧ GnB fandom. Terrible experience with yall ✧\}}}}$
 
+${{\color{#4682b4}{\textsf{✧ 18+ cuz I get soo nervy w u especially if we jst met cuz ur like an adult or something and cuz u veryy older than me ✧\}}}}$
+
 </details>
 
 </details>
