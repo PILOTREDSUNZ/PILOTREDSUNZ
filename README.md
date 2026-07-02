@@ -71,7 +71,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 <details>
   <summary>
 <img width="20" height="20" alt="byii" src="https://github.com/user-attachments/assets/443559b2-7058-4913-99c2-cc0ce36a9867" />
-    BYI
+    INFO
 <img width="20" height="20" alt="byii" src="https://github.com/user-attachments/assets/b24f6195-c107-415c-8023-f932623d8fa0" />
     </span>
   </summary>
