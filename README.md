@@ -78,7 +78,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
   <br>
 
-  ${{\color{#4682b4}{\textsf{✧ I have derealization-depersonalization disorder and I tend to get overwhelmed at certain things easily. Sorry\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ I have CSBD and DPDR and I tend to get overwhelmed at certain things easily. Sorry\}}}}$
   ${{\color{#4682b4}{\textsf{if im constantly overwhelmed or seen as sensetive and act off at days because of this ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Big BLU team enthusiast here. I gen would get excited if I see more BLU mercenary skins ✧\}}}}$
@@ -185,7 +185,8 @@ ${{\color{#4682b4}{\textsf{especially if we arent friends ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Heavy. Hes soo adorbs awhhh. IDC if hes a BLU or RED Heavy, Heavy is still Heavy <3 ✧\}}}}$
 
-  ${{\color{#4682b4}{\textsf{✧ TF2... Duh. And also other Valve games!! ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ TF2... Duh, been a special interest of 7 years of mine and still going strong!!\}}}}$
+  ${{\color{#4682b4}{\textsf{And also other Valve games!! ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Rainbows, sunset, and clouds. They r gen soo pretty I love them sm ✧\}}}}$
 
