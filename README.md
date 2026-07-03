@@ -101,9 +101,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Im extremely affectionate towards my friends and often call them by nicknames and say ILY and worry too much, so be aware\}}}}$
   ${{\color{#4682b4}{\textsf{of this if u intend to be my friend. AND PLEASE NEVER MISTAKEN THIS AS SOMETHING ROMANTICAL. THIS IS PURELY PLATONICAL ✧\}}}}$
-
-  ${{\color{#4682b4}{\textsf{✧ IM ACTUALLY VERYYY KIND AND NICE PLEASEPLS INT W ME IM NOT THAT NATURALLY MEAN AND RUDE PLSS ✧\}}}}$
-
+  
 </details>
 
 </details>
