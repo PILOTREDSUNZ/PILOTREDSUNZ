@@ -78,8 +78,8 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
   <br>
 
-  ${{\color{#4682b4}{\textsf{✧ I have DRPD and I tend to get overwhelmed at certain things easily. Sorry\}}}}$
-  ${{\color{#4682b4}{\textsf{if im constantly overwhelmed or seen as sensetive and act off at days because of this ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ I often experience derealization-depersonalization episodes and  I tend to get overwhelmed at certain things easily.\}}}}$
+  ${{\color{#4682b4}{\textsf{Sorry if im constantly overwhelmed or seen as sensetive and act off at days because of this ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Big BLU team enthusiast here. I gen would get excited if I see more BLU mercenary skins ✧\}}}}$
 
