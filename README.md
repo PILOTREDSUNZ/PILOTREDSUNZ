@@ -187,7 +187,7 @@ ${{\color{#4682b4}{\textsf{especially if we arent friends ✧\}}}}$
   ${{\color{#4682b4}{\textsf{And also other Valve games!! ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ PEOPLE AT THE TF2/VALVE AREA!!! yesyes i love u guys smm /plat even if we nver talked before cuz i see u guys as me friends and\}}}}$
-  ${{\color{#4682b4}{\textsf{acquiantances!!1 we all r a little community in the valve area afterall, jst dudes loving and liking the same stuffs ^^ ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{acquiantances!!1 we all r a little community in the valve area afterall, jst dudes loving and liking the same stuffs <33 ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Rainbows, sunset, and clouds. They r gen soo pretty I love them sm ✧\}}}}$
 
