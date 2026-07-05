@@ -222,6 +222,21 @@ ${{\color{#4682b4}{\textsf{✧ Looking for chat- bored and usually waiting for f
 
 ${{\color{#4682b4}{\textsf{✧ Looking for roleplay- feeling silly and is willing to roleplay with anyone or roleplaying w someone else already!!! (rarely used) ✧\}}}}$
 
+${{\color{#d1aa36}{\textsf{✧ NAME STATUS ✧ \}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ IWEC= bad mood and stressed, might come off as dry, awkward or accidentally say rude stuffss. C+H heavily appreciated\}}}}$
+  ${{\color{#4682b4}{\textsf{even if I dont know u or not close w at all ✧ \}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ DNI= VERYYY bad mood and overwhelmed and prob going through an episode. Might be doing something else to cope and calm myself downn.\}}}}$
+  ${{\color{#4682b4}{\textsf{Prob reading comics, watching medias of my comf chars and fandoms. Still free to int though!! Its jst a DNI since I prob wont respond or\}}}}$
+  ${{\color{#4682b4}{\textsf{acknowledge you through nodding and booping or jst by staring at you or respond verryyy latee. C+H also heavyily appreciated ✧ \}}}}$
+  
+  ${{\color{#4682b4}{\textsf{✧ C+H enc= yesyes jst like what the name says c+h encouraged for eveyrone yes plss int w mee!!! ✧ \}}}}$
+  
+  ${{\color{#4682b4}{\textsf{✧ DNIDNI= Double DNI usually means I realyy dont want anyone interacting with me at the moment. Might temporarily hide people \}}}}$
+  ${{\color{#4682b4}{\textsf{or walk off when getting interacted with though I rarely use this cuz cmon, this is PT, a socializing game ✧ \}}}}$
+  
+  ${{\color{#4682b4}{\textsf{✧ DNIUF= hmmm yeah same as above but mostly jst want my friends to int w mee ✧ \}}}}$
 </details>
 
 </details>
