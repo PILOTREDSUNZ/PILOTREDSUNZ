@@ -96,8 +96,8 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Expect me to actually sit with u if u have C+H in ur name whenever im sitting alone ✧\}}}}$
 
-  ${{\color{#4682b4}{\textsf{✧ My friend requests are turned off. You might need to talk to me for days and ask me if u can add me.I will\}}}}$
-  ${{\color{#4682b4}{\textsf{I will unfriend you though if we are not that close and havent talk to eachother in months ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ My friend requests are turned off. You might need to talk to me for days and ask me if u can add me. I will\}}}}$
+  ${{\color{#4682b4}{\textsf{unfriend you though if we are not that close and havent talk to eachother in months ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Im extremely affectionate towards my friends and often call them by nicknames and say ILY and worry too much, so be aware\}}}}$
   ${{\color{#4682b4}{\textsf{of this if u intend to be my friend. AND PLEASE NEVER MISTAKEN THIS AS SOMETHING ROMANTICAL. THIS IS PURELY PLATONICAL ✧\}}}}$
@@ -185,6 +185,9 @@ ${{\color{#4682b4}{\textsf{especially if we arent friends ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ TF2... Duh, been a special interest of 7 years of mine and still going strong!!\}}}}$
   ${{\color{#4682b4}{\textsf{And also other Valve games!! ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ PEOPLE AT THE TF2/VALVE AREA!!! yesyes i love u guys smm /plat even if we nver talked before cuz i see u guys as me friends and\}}}}$
+  ${{\color{#4682b4}{\textsf{acquiantances!!1 we all r a little community in the valve area afterall, jst dudes loving and liking the same stuffs ^^ ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Rainbows, sunset, and clouds. They r gen soo pretty I love them sm ✧\}}}}$
 
