@@ -78,6 +78,9 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
   <br>
 
+  ${{\color{#4682b4}{\textsf{✧ A nerdy tomboy punk irl who has hirsutism and is a gen loser and wants a longterm friendships but can barely maintain\}}}}$
+  ${{\color{#4682b4}{\textsf{one cuz of how awkward and weird i can be ✧\}}}}$
+
   ${{\color{#4682b4}{\textsf{✧ I often experience derealization-depersonalization episodes and  I tend to get overwhelmed at certain things easily.\}}}}$
   ${{\color{#4682b4}{\textsf{Sorry if im constantly overwhelmed or seen as sensetive and act off at days because of this ✧\}}}}$
 
@@ -92,7 +95,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Might say some rude and weird things that can make u uncomfy. Please lmk if I do and ill apologise ✧\}}}}$
 
-  ${{\color{#4682b4}{\textsf{✧ I really do love and enjoy talking and yapping a lot ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ I really do love and enjoy talking and yapping a lot so plss int im very friendly and cool i swear  ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ My grammar and spelling sucks a lot especially when I get excited talking and I cant really realise my mistakes easily\}}}}$
   ${{\color{#4682b4}{\textsf{so I never really bothered to correct them most of the time. Sorry if you also dont understand me because of this ✧\}}}}$
