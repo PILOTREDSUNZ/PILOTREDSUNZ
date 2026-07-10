@@ -56,11 +56,11 @@ ${{\color{#d1aa36}{\textsf{overconfident and brash I could get during\}}}}$
 
 ${{\color{#d1aa36}{\textsf{interactions ⟡⋆\}}}}$
 
-${{\color{#d1aa36}{\textsf{⊹₊ Be warned, I can have sudden mood swings and\}}}}$
+${{\color{#d1aa36}{\textsf{⊹₊ INT pls im pretty friendly and playful plspls\}}}}$
 
-${{\color{#d1aa36}{\textsf{might say some rude things towards you. I\}}}}$
+${{\color{#d1aa36}{\textsf{I rlly looveee talking to new ppl and making new\}}}}$
 
-${{\color{#d1aa36}{\textsf{apologise in advance for this ⟡⋆\}}}}$
+${{\color{#d1aa36}{\textsf{friends in pt!! ⟡⋆\}}}}$
 
 ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
