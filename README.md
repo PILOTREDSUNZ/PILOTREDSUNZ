@@ -86,7 +86,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Big BLU team enthusiast here. I gen would get excited if I see more BLU mercenary skins ✧\}}}}$
  
-  ${{\color{#4682b4}{\textsf{✧ I do NOT love cuddle piles. I will move away if theres wayy too many ppl sitting w me ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ I do NOT love cuddle piles. I will move away if theres wayy too many ppl sitting w me (usually more than four) ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ I tend to hide people temporarily if they managed to bother and annoy me ✧\}}}}$
 
