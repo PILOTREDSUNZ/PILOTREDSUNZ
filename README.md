@@ -85,6 +85,8 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
   ${{\color{#4682b4}{\textsf{Sorry if im constantly overwhelmed or seen as sensetive and act off at days because of this ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Big BLU team enthusiast here. I gen would get excited if I see more BLU mercenary skins ✧\}}}}$
+ 
+  ${{\color{#4682b4}{\textsf{✧ I do NOT love cuddle piles. I will move away if theres wayy too many ppl sitting w me ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ I tend to hide people temporarily if they managed to bother and annoy me ✧\}}}}$
 
@@ -167,7 +169,7 @@ ${{\color{#4682b4}{\textsf{✧ Anti-fictionkins ✧\}}}}$
 
 ${{\color{#4682b4}{\textsf{✧ If you sit besides me and roleplay with me for the sake of your ship "WITHOUT" asking first. I WILL either hide u\}}}}$
 ${{\color{#4682b4}{\textsf{temporarily or move away. Im already awkward with discussing the topic of ships, so this gen makes me uncomfy,\}}}}$
-${{\color{#4682b4}{\textsf{especially if we arent friends ✧\}}}}$
+${{\color{#4682b4}{\textsf{especially if we arent friends. Ask first and I'll allow it (most of the time) ✧\}}}}$
 
 </details>
 
