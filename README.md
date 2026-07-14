@@ -93,7 +93,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
   ${{\color{#4682b4}{\textsf{✧ C+H enc whenever im alone but please dont sit w me if im already sitting w someone else cuz they might be shy and awkward unless\}}}}$
   ${{\color{#4682b4}{\textsf{u are also friends w that said person ✧\}}}}$
 
-  ${{\color{#4682b4}{\textsf{✧ I barely use any tone tags so be cautious when interacting if you need them ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ I barely use any tone tags so be cautious when interacting if you need them. Though Ill be considerate if u need them jst lmk ✧\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Might say some rude and weird things that can make u uncomfy. Please lmk if I do and ill apologise ✧\}}}}$
 
