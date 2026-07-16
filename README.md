@@ -249,13 +249,4 @@ ${{\color{#d1aa36}{\textsf{✧ NAME STATUS ✧ \}}}}$
 
 </details>
 
-$${{\color{#f7f1d1}{\textsf{Usually w these lovelies\}}}}$$
-
-<div align="center">
-<img width="107" height="64" alt="stamp (3)" src="https://github.com/user-attachments/assets/4fcd552f-66fa-4fa3-a992-ac9f7701cd0b" />
-<img width="111" height="68" alt="stamp (1)" src="https://github.com/user-attachments/assets/62e8b763-7b57-4d9a-b05c-c791b3a1a0aa" />
-<img width="107" height="64" alt="stamp (2)" src="https://github.com/user-attachments/assets/f760f695-6a98-4a45-adaf-42d728d5b672" />
-<img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/dc625a4a-683b-48b2-a822-88bc8b509154" />
-
-
 $${{\color{#4682b4}\Large{\textsf{⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹\}}}}$$
