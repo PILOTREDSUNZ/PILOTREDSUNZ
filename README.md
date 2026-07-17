@@ -84,6 +84,8 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
   ${{\color{#4682b4}{\textsf{✧ I often experience derealization-depersonalization episodes and  I tend to get overwhelmed at certain things easily.\}}}}$
   ${{\color{#4682b4}{\textsf{Sorry if im constantly overwhelmed or seen as sensetive and act off at days because of this ✧\}}}}$
 
+  ${{\color{#4682b4}{\textsf{✧ TF2 is a big source of comfort for me so yeah I mostly focus mostly on it rather than my other fandoms ✧\}}}}$
+
   ${{\color{#4682b4}{\textsf{✧ Big BLU team enthusiast here. I gen would get excited if I see more BLU mercenary skins ✧\}}}}$
  
   ${{\color{#4682b4}{\textsf{✧ I do NOT love cuddle piles. I will move away if theres wayy too many ppl sitting w me (usually more than four) ✧\}}}}$
