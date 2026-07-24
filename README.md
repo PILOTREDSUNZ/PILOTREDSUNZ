@@ -21,4 +21,5 @@
 <div></div>
 
 $${{\color{#4682b4}{\textsf{૮ ฅ• ﻌ -ฅ ა arf ! Zilch or Blu 𑣲 Furry ⸝⸝ She/Pup 🦴 \}}}}$$
-$${{\color{#4682b4}{\textsf{𐂯ྀི Panromantic ♡ Bigender ♡ Pupgender ໒꒰˵- ˕ -˵꒱১\}}}}$$
+$${{\color{#f7f1d1}{\textsf{𐂯ྀི Panromantic ♡ Bigender ♡ Pupgender ໒꒰˵- ˕ -˵꒱১\}}}}$$
+$${{\color{#4682b4}{\textsf{‧°꒰🐾 ⏖ 14y.o 𓏵 𓏼 08/13/2011 •ﻌ• THE BLU Spy of Pony Town υ˶˃ ﻌ ˂˶υ ꒱༘⋆\}}}}$$
