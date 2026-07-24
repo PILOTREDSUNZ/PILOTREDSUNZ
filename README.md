@@ -21,3 +21,4 @@
 <div></div>
 
 $${{\color{#4682b4}{\textsf{૮ ฅ• ﻌ -ฅ ა arf ! Zilch or Blu 𑣲 Furry ⸝⸝ She/Pup 🦴 \}}}}$$
+$${{\color{#4682b4}{\textsf{𐂯ྀི Panromantic ♡ Bigender ♡ Pupgender ໒꒰˵- ˕ -˵꒱১\}}}}$$
