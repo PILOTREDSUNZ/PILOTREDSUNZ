@@ -20,4 +20,4 @@
 <img width="20" height="20" alt="puppuuu" src="https://github.com/user-attachments/assets/077d525f-add5-43df-b5bc-d6a8025afe65" />
 <div></div>
 
-$${{\color{#4682b4}{\textsf{૮ ฅ• ﻌ -ฅ ა arf !  🦴 \}}}}$$
+$${{\color{#4682b4}{\textsf{૮ ฅ• ﻌ -ฅ ა arf ! Zilch or Blu 𑣲 Furry ⸝⸝ She/Pup 🦴 \}}}}$$
