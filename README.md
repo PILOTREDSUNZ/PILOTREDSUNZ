@@ -13,4 +13,4 @@
 
 
 <div align="center">
-<img width="230" height="230" alt="Untitled21_20260724215512" src="https://github.com/user-attachments/assets/5cbee036-e322-4953-a00e-6a48f2f834e0" />
+<img width="200" height="200" alt="Untitled21_20260724215512" src="https://github.com/user-attachments/assets/5cbee036-e322-4953-a00e-6a48f2f834e0" />
