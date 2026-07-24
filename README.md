@@ -15,4 +15,4 @@
 <div align="center">
 <img height="130" alt="Untitled21_20260724215512" src="https://github.com/user-attachments/assets/5cbee036-e322-4953-a00e-6a48f2f834e0" />
 
-[𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://bluspy.atabook.org/) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝗀𝗎𝗇𝗌𝗅𝗈𝗅](https://guns.lol/bluspy) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://bluspy.straw.page)
+[𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝘼𝙏𝘼𝘽𝙊𝙊𝙆](https://bluspy.atabook.org/) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝙂𝙐𝙉𝙎.𝙇𝙊𝙇](https://guns.lol/bluspy) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝙎𝙏𝙍𝘼𝙒𝙋𝘼𝙂𝙀](https://bluspy.straw.page)
