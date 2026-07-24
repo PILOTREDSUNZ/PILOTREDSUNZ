@@ -10,3 +10,7 @@
     <img src="https://readme-typing-svg.demolab.com?font=Kings&pause=1000&color=456D9A&width=435&lines=LET+US+DANCE%2C+GENTLEMEN!;DANCE+AS+IF+NO+ONE'S+SHOOTING+AT+US!" alt="Typing SVG" /></a></a>
   </a>
 </p>
+
+
+<div align="center">
+<img width="230" height="230" alt="Untitled21_20260724215512" src="https://github.com/user-attachments/assets/5cbee036-e322-4953-a00e-6a48f2f834e0" />
