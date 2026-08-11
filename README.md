@@ -1,3 +1,4 @@
+<img width="20" height="20" alt="Yvhie7a" src="https://github.com/user-attachments/assets/1c4178cb-0374-40ed-b262-241e11212c7a" />
 
 <p align="center">
   <a href="https://git.io/typing-svg">
@@ -5,4 +6,5 @@
   </a>
 </p>
 
+<img width="20" height="20" alt="Yvhie7a" src="https://github.com/user-attachments/assets/9d4488fd-9ff4-4882-99e7-3abad19b9a0b" />
 
