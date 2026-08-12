@@ -23,3 +23,5 @@
 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=1E39B6&center=true&vCenter=true&repeat=false&width=800&lines=%7C+BASIC+DNI+CRITERIA+%3A+SHIPS+IWEC+%7C+" alt="Typing SVG" /></a>
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=1E39B6&center=true&vCenter=true&repeat=false&width=800&lines=%3E++HIGH+EMPATHY+%2B+SYMPATHY+%7C+ASOCIAL+%3C" alt="Typing SVG" /></a>
