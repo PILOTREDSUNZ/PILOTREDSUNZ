@@ -17,6 +17,9 @@
 
 <p align="center">
   <a href="https://git.io/typing-svg">
-<img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=0C4CB6&center=true&vCenter=true&repeat=false&width=1280&height=100&separator=%3C&lines=%7C+15+Y.O+FILIPINO+;+PANROMANTIC+%2C+PUPGENDER+%2C+BIGENDER++;+FURRY+%7C" alt="Typing SVG" /></a>
+<img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&separator=%3C&lines=%7C+15+Y.O+FILIPINO+;+PANROMANTIC+%2C+PUPGENDER+%2C+BIGENDER++;+FURRY+%7C" alt="Typing SVG" /></a>
   </a>
 </p>
+
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=1E39B6&center=true&vCenter=true&repeat=false&width=800&lines=%7C+BASIC+DNI+CRITERIA+%3A+SHIPS+IWEC+%7C+" alt="Typing SVG" /></a>
