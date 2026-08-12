@@ -6,4 +6,4 @@
 </p>
 
 <div align="center">
-<img width="735" height="704" alt="228aeedfc420f2ede35bd42112697ce1" src="https://github.com/user-attachments/assets/2009efec-6e28-446b-b434-049bd3094333" />
+<img width="736" height="552" alt="60b558eedf2cd33133985d7dd37f1ed4" src="https://github.com/user-attachments/assets/57a66c99-343d-49b5-8ca7-c0b76e2c09db" />
