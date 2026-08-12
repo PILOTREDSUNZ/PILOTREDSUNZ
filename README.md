@@ -11,7 +11,7 @@
 
 <p align="center">
   <a href="https://git.io/typing-svg">
-  <img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=B28228&repeat=false&width=750&lines=%22LET+US+DANCE+GENTLEMEN!%22;%22DANCE+AS+IF+NO+ONES+SHOOTING+AT+US!%22" alt="Typing SVG" /></a>
+  <img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=B28228&repeat=true&width=750&lines=%22LET+US+DANCE+GENTLEMEN!%22;%22DANCE+AS+IF+NO+ONES+SHOOTING+AT+US!%22" alt="Typing SVG" /></a>
   </a>
 </p>
 
