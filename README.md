@@ -17,9 +17,9 @@
   </a>
 </p>
 
-<div align="center">
+
 [𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝘼𝙏𝘼𝘽𝙊𝙊𝙆](https://bluspy.atabook.org/) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝙂𝙐𝙉𝙎.𝙇𝙊𝙇](https://guns.lol/bluspy) 
-</br></br>
+
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=4997&pause=1000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&separator=%3C&lines=%7C+BASIC+DNI+CRITERIA+;+SHIPS+IWEC+%7C" alt="Typing SVG" /></a>
 
