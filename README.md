@@ -23,6 +23,8 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=4997&pause=1000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&lines=%3E+HIGH+EMPATHY+%2B+SYMPATHY+%7C+ASOCIAL+%3C" alt="Typing SVG" /></a>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=6000&pause=2000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&lines=%3E+I+NEVER+USUALLY+INT+FIRST+W+ANYONE+%3C;%3E+I+DONT+HAVE+MUCH+INTEREST+%26+ENERGY+TO+INT+FIRST+W+OTHERS+%3C" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=6000&pause=2000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&lines=%3E+I+NEVER+USUALLY+INT+FIRST+W+PPL+IDK+%3C;%3E+I+DONT+HAVE+MUCH+INTEREST+%26+ENERGY+TO+INT+FIRST+W+OTHERS+%3C" alt="Typing SVG" /></a>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=6000&pause=2000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&lines=%3E+FEEL+FREE+TO+INT+W+ME+THOUGH+%3C;%3E+I+MAY+BE+AWKWARD+AT+FIRST+BUT+I+ENJOY+INTERACTIONS+%3C" alt="Typing SVG" /></a>
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=6000&pause=2000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&separator=%3D&lines=%3E+FRIEND+REQS+ARE+TURNED+OFF+%3C%3D%3E+ASK+FIRST+TO+ADD+;+I+ONLY+ADD+THOSE+IVE+TALKED+W+%3C" alt="Typing SVG" /></a>
