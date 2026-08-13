@@ -21,6 +21,8 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=4997&pause=1000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&separator=%3C&lines=%7C+BASIC+DNI+CRITERIA+;+SHIPS+IWEC+%7C" alt="Typing SVG" /></a>
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=6000&pause=2000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&lines=%7C+I+HIDE+AND+BLOCK+FREELY+IF+UR+WEIRD+OR+A+BIGOT+%7C+" alt="Typing SVG" /></a>
+
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=4997&pause=1000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&lines=%3E+HIGH+EMPATHY+%2B+SYMPATHY+%7C+ASOCIAL+%3C" alt="Typing SVG" /></a>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=6000&pause=2000&color=1E39B6&center=true&vCenter=true&repeat=false&width=1280&height=100&lines=%3E+I+NEVER+USUALLY+INT+FIRST+W+PPL+IDK+%3C;%3E+I+DONT+HAVE+MUCH+INTEREST+%26+ENERGY+TO+INT+FIRST+W+OTHERS+%3C" alt="Typing SVG" /></a>
