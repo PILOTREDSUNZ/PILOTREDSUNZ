@@ -8,7 +8,7 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=4997&pause=1000&color=B28228&center=true&vCenter=true&width=1280&height=100&lines=%22LET+US+DANCE+GENTLEMEN!%22;%22DANCE+AS+IF+NO+ONES+SHOOTING+AT+US!%22" alt="Typing SVG" /></a>
 
-<p align="center">
+<div align="center">
 [𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝘼𝙏𝘼𝘽𝙊𝙊𝙆](https://bluspy.atabook.org/) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝙂𝙐𝙉𝙎.𝙇𝙊𝙇](https://guns.lol/bluspy) 
 
 
