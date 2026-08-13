@@ -10,7 +10,7 @@
 
 <div align="center">
 [𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝘼𝙏𝘼𝘽𝙊𝙊𝙆](https://bluspy.atabook.org/) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝙂𝙐𝙉𝙎.𝙇𝙊𝙇](https://guns.lol/bluspy) 
-
+</div></div>
 
 <p align="center">
   <a href="https://git.io/typing-svg">
