@@ -9,8 +9,13 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&duration=4997&pause=1000&color=B28228&center=true&vCenter=true&width=1280&height=100&lines=%22LET+US+DANCE+GENTLEMEN!%22;%22DANCE+AS+IF+NO+ONES+SHOOTING+AT+US!%22" alt="Typing SVG" /></a>
 
 
+<div align="center">
+<img height="130" alt="Untitled21_20260724215512" src="https://github.com/user-attachments/assets/5cbee036-e322-4953-a00e-6a48f2f834e0" />
+
 [𝙋𝙍𝙊𝙉𝙊𝙐𝙉𝙎.𝘾𝘾](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝘼𝙏𝘼𝘽𝙊𝙊𝙆](https://bluspy.atabook.org/) $${{\color{#d1aa36}{\textsf{✦\}}}}$$ [𝙂𝙐𝙉𝙎.𝙇𝙊𝙇](https://guns.lol/bluspy) 
 
+<img width="20" height="20" alt="puppuuu" src="https://github.com/user-attachments/assets/077d525f-add5-43df-b5bc-d6a8025afe65" />
+<div></div>
 
 <p align="center">
   <a href="https://git.io/typing-svg">
